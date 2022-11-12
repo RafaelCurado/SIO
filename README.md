@@ -1,3 +1,3 @@
-Segurança da Informação nas Organizações
+Segurança Informática nas Organizações
 
 
